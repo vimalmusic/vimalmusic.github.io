@@ -1,2 +1,0 @@
-# vimalmusic.github.io
-UPDATES
